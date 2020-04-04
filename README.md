@@ -5,7 +5,7 @@
 
 
 
-[![INSERT YOUR GRAPHIC HERE](https://imgur.com/S6LkOaw)]()
+<blockquote class="imgur-embed-pub" lang="en" data-id="Y4fZOCy"><a href="https://imgur.com/Y4fZOCy">View post on imgur.com</a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
 
 
 
